@@ -12,7 +12,7 @@
 
 
 ☎️ Контакты
-- Email: sherzodwork144@gamil.com
+- Email: Shamir144@yandex.com
 - Telegram: https://t.me/Shamirov_dev
 
 
